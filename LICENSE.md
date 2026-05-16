@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with smart MEV Bot for new token sniper bot | arbitrage-opportunities & sandwich-attack-execution. Featuring arbitrage-opportunities and
 
 
 
